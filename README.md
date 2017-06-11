@@ -1,3 +1,2 @@
 # Software-Lab
-
-Happy happy happy me.................
+hey , how did i get into this thread ? did you use the pc of lab-2 of UIU?
